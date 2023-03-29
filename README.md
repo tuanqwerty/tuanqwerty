@@ -8,7 +8,7 @@
               ||--0-w | \/
               ||     ||
 </pre>
-### just a funny gif...😛
+### and just a funny gif...😛
 ![](https://media.giphy.com/media/13GIgrGdslD9oQ/giphy.gif)
 
 
